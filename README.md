@@ -1,2 +1,1 @@
-<img src="https://cdn.discordapp.com/attachments/1090164617151512576/1244802624935563305/d0c605dc82a667ea694df7901018174f.png?ex=66567049&is=66551ec9&hm=d305f2c4d4c0f20e9e999d68f74ac8b809ff5c8710d6c7dbc0f14d695d30ac1c" height="260" width="564"> 
-Hi
+dni proshippers and weirdos
