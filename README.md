@@ -27,7 +27,7 @@
 </div align="center">
 <h6> general criteria (proship, racist, sexist, ect)
 <br>
-under 13 ; i use discord often
+under 13; i use discord often
 <br>
 overly sexual
 <div>
