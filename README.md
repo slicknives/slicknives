@@ -35,7 +35,7 @@ overly sexual
 </div>
 <h4> THIN ICE
 <div align="center">
-  <h6>over 18
+  <h6>older than me by 4 years
 <br>
 knifebolb shippers
 <br>
