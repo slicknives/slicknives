@@ -44,6 +44,8 @@ people who dont use tone tags at all
 <br>
 </div>
 <br>
+<img src="https://visitor-badge.laobi.icu/badge?page_id=slicknives.visitor-badge&left_color=black&right_color=grey&left_text=views">
+<br>
 <br>
 <img src="https://64.media.tumblr.com/bc4557b0e4d2f0ea6ee12f16a132290a/aea03be4610b71fb-7f/s100x200/59088abdea48cfc820d99f7ae380dc38197de222.jpg" width="16%" height="auto" float="left">
   <img src="https://64.media.tumblr.com/df2a61ca87a3b517930a6df9053b2d87/473928ea48888009-e5/s100x200/0f9dea48de823e46b58b96710c3ec84ea762ce0f.gifv" width="16%" height="auto">
