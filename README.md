@@ -11,7 +11,7 @@
 <img src="https://64.media.tumblr.com/e99ab0ed02363927574cde8f4cce215a/69264d65aaa9f050-ed/s540x810/531eae702c873779c52041a70c0a1c4e384654bc.gifv" width="70%" height="auto">
   <br>
   <div>
-  <h4> `` living in my skin another day, i wish the pain would go away ``
+  <h4> `` i obey my tv, it tells me everything! ``
 <br>  
 <h6>he  /  it  /  knife  /  blade  /  slice  /  stab
 <h6>i can speak english and russian but i wont be able to understand u 100% so use english
