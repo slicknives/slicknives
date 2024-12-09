@@ -17,7 +17,7 @@
 <h6>i can speak english and russian but i wont be able to understand u 100% so use english
 <h6> whisper to interact  ;  only friends can cuddle
 <h6> im online most of the time
-<h6> i am an irl dont reality check me
+<h6> i am an irl
 <br>
 <div>
 <h3>⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
